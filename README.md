@@ -1,1 +1,1 @@
-Presentation at the annual conference of the German Soil Science Society (Deutsche Bodenkundliche Gesellschaft DBG) on September 4, 2023
+Presentation at the annual conference of the German Soil Science Society (www.dbg2023.de/) on September 4, 2023
